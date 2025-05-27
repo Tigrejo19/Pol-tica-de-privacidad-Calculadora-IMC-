@@ -24,4 +24,4 @@ Podemos actualizar nuestra Política de Privacidad de vez en cuando. Le notifica
 **5. Contacto**
 
 Si tiene alguna pregunta sobre esta Política de Privacidad, puede contactarnos:
-Por correo electrónico: [tu_correo_electronico@ejemplo.com]
+Por correo electrónico: [leonardovalverde19@gmail.com]
